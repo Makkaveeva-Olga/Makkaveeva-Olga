@@ -1,7 +1,7 @@
 ### Hi there 👋
 
-<!--
-**Makkaveeva-Olga/Makkaveeva-Olga** is a ✨ product analyst special ✨ 
+
+**Makkaveeva Olga** is a ✨ product analyst special ✨ 
 
 ## Меня зовут Ольга и я - продуктовый аналитик
 
